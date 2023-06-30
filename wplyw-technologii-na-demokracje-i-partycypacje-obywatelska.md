@@ -14,8 +14,6 @@ Technologia umożliwia również nowe formy partycypacji obywatelskiej. E-głoso
 
 
 
-Ostatecznie, technologia ma zarówno potencjał do wzmocnienia demokracji, jak i do jej podważenia. Z jednej strony, umożliwia ona większą partycypację obywatelską i u
-
-łatwia wymianę informacji. Z drugiej strony, wpływa na kształtowanie się opinii publicznej w sposób, który może być zniekształcony przez dezinformację i dominację dużych firm technologicznych. Aby zapewnić, że technologia będzie służyć demokracji, a nie jej szkodzić, konieczne jest właściwe regulacje i edukacja obywateli.
+Ostatecznie, technologia ma zarówno potencjał do wzmocnienia demokracji, jak i do jej podważenia. Z jednej strony, umożliwia ona większą partycypację obywatelską i ułatwia wymianę informacji. Z drugiej strony, wpływa na kształtowanie się opinii publicznej w sposób, który może być zniekształcony przez dezinformację i dominację dużych firm technologicznych. Aby zapewnić, że technologia będzie służyć demokracji, a nie jej szkodzić, konieczne jest właściwe regulacje i edukacja obywateli.
 
 Technologia na pewno odgrywa kluczową rolę w kształtowaniu demokracji XXI wieku. To, jak ostatecznie wpłynie na nasze społeczeństwa i instytucje, zależy od naszych działań teraz. Musimy zrozumieć, przyjąć i odpowiednio zareagować na te wyzwania, aby zapewnić, że technologia będzie służyć demokracji, a nie ją podważać.
